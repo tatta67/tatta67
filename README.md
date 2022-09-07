@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @tatta67
+- 👀 I’m interested in musik
+- 🌱 I’m currently learning medicine
+- 📫 How to reach me : instagram n9.meter
